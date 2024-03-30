@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @LifeIsLikeAnFish1
+- 👀 I’m interested in Fish
+- 🌱 I’m currently learning Life
+- 💞️ I’m looking to collaborate on Life is like ... an Fish
+- 📫 How to reach me Fish
+- 😄 Pronouns: Fish
+- ⚡ Fun fact: Life is like ... an Fish
